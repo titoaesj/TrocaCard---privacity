@@ -1,0 +1,1 @@
+# TrocaCard---privacity
